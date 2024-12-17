@@ -2,13 +2,13 @@ Mawutorwu Klu
 
 Kean University
 
-Junior
+College Junior
 
 Information Technology
 
 **ABOUT ME**
 
-As a child growing up around people who had computers and knew how to use them properly, that was around the time, my interests in computers were sparked then from unplugging my computer and opening it up looking at the hardware, and dismantling it, in hopes of putting all the parts back into the computer and hope it works.
+As a child growing up around people who had computers and knew how to use them properly, that was around the time my interests in computers were sparked, then from unplugging my computer, opening it up, looking at the hardware, and dismantling it, in hopes of putting all the parts back into the computer and hope it works.
 
 **COURSEWORK**
 
